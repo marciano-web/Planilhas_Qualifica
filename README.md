@@ -1,1 +1,0 @@
-# Planilhas_Qualifica
